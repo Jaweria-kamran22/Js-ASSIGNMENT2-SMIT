@@ -1,0 +1,2 @@
+# Js-ASSIGNMENT2-SMIT
+ 
